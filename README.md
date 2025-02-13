@@ -1,4 +1,4 @@
-# MyShenna
+
 <html>
 	<head>
 		<title>To My Love</title>
@@ -15,7 +15,7 @@
 
 		<p><h5>i promise to keep loving you harder every day, through every saltik szn and episode, and every joy. here’s to more Valentine’s Days, anniversaries, adventures, and quiet moments together. i love you endlessly, baby ❤️</h5></p>
 
-		<p><h5>sorry na agad kung late ako magigising todei huhu GOOD MORNING THERE!! I HOPE SMOOTH LANG APPOITMENTS MO TODAY LOVE!!</h5></p>
+		<p><h5>sorry na agad kung late ako magigising todei huhu GOOD MORNING THERE!! I HOPE SMOOTH LANG APPOINTMENTS MO TODAY LOVE!!</h5></p>
 
 <p> </p>
 <br/>
