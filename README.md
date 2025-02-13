@@ -5,7 +5,7 @@
 	</head>
 <hr/>
 	<body>
-		<h1>!!!HAPPY VALENTINE’S DAY TO MY FAVORITE HUMAN TO EVER EXIST!!!<h/h1>
+		<h1>!!!HAPPY VALENTINE’S DAY TO MY FAVORITE HUMAN TO EVER EXIST!!!
 
 <hr/>
 
@@ -18,7 +18,7 @@
 <p> </p>
 <br/>
 <p> </p>
-		<p> <h5>from your number 1 fan,<br/><h6>babi</h6></p>
+		<p> <h5>from your number 1 fan,<br/><h6>babi</h6>
 
 
 
