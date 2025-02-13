@@ -5,25 +5,20 @@
 	</head>
 <hr/>
 	<body>
-		<h1>!!!HAPPY BIRTHDAY BABI!!! <h/h1>
+		<h1>!!!HAPPY VALENTINE’S DAY TO MY FAVORITE HUMAN TO EVER EXIST!!! <h/h1>
 
 <hr/>
 
-		<p><h5>Hi, my baby! Of course, I want to be the first person to greet you on your special day kaya HAPPY HAPPY BIRTHDAY, LOVE! I know that you know I'm not really into receiving gifts, but God knows how grateful I am to Him for giving me the best gift in life, and that is you. I couldn't ask for more, love. I love you every day, tomorrow, always, and for life.</h5></p>
+		<p><h5>2nd v-day w my baby 🥹 thank you so much for everything, love. i appreciate everything you do for me and for us. you mean the world to me, babi. i don’t wanna live my life without you :(( .</h5></p>
 
-		<p><h5>I don't know how to thank you for making me comfortable every time I'm with you and for making me feel the love that's been missing since my mom died. Oh, baka sabihin mo na namang mama kita? Hahaha kainis.
-But yes, love, you're giving me the love that I used to have from my mom, and that is something that no one else has made me feel, not even my friends and family.</h5></p>
+		<p><h5>thank you for being my safe space, my comfort, my happiness, and my love all rolled into one. im so lucky to have you by my side every single day. you make me feel so loved, supported, and cared for and i hope you know how much i love and adore you in return. lifr feels so much better, brighter, and more beautiful with you in it.</h5></p>
 
-		<p><h5>I super admire you for being so independent ever since and for knowing what you really want in life and sticking with it. You inspire me every day, babi. I also love how you choose the energy and confidence that you want from someone to embody (like ekson's confidence when it comes to fashion), that is so great! Really great urghhh 😖</h5></p>
-
-		<p><h5>Just staying up super late watching cheesy movies and eating junk food until we fell asleep on the bed is super cute for me. Those are the moments I cherish the most, just being with you, doing nothing special but feeling like the luckiest person in the world. You bring so much joy and laughter into my life, and I can't wait to create even more beautiful memories with you ughhh I'll see you very soon babi. Love you endlessly!</h5></p>
-
-		<p><h5>And I'm so lucky I get to share your time and love with you. You make every moment special and memorable. Keep being You, love. I'm always here to support you every step of the way. I gotchu always. Happy birthday again, baby! I miss you so much, huhu. Here's to many more birthdays with you! Cheers! 🥂✨</h5></p>
+		<p><h5>i promise to keep loving you harder every day, through every saltik szn and episode, and every joy. here’s to more Valentine’s Days, anniversaries, adventures, and quiet moments together. i love you endlessly, baby ❤️</h5></p>
 
 <p> </p>
 <br/>
 <p> </p>
-		<p> <h5>From your number 1 fan,<br/><h6>Fayi</h6> </p>
+		<p> <h5>from your number 1 fan,<br/><h6>babi</h6> </p>
 
 
 
